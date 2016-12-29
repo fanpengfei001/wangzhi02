@@ -17,9 +17,15 @@ http://www.newadblock.com/    请在软件设置里关闭“启用https拦截�
 
 Fiddler 抓包工具
 
-45.32.17.61 8080    256 cfb ltetp.tv.189.com  
+AAA http://gghhee.com/  http://www.77jjoo.com/
 
- 
+Youtube关键字：
 
-AAA http://gghhee.com/  http://www.77jjoo.com/
+1.  Fast and Furious 8 Trailer 4K ULTRA HD | Fast 8   
+
+2.WONDER WOMAN Trailer 1 + 2 (Ultra HD 4K - 2017)   
+
+              
+              
+              
  
