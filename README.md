@@ -1,6 +1,6 @@
 # wangzhi02
 
-http://q4yy.com/   YY4480高清影院-新视觉影院 
+http://q4yy.com/   Http://www.a4yy.com/  YY4480高清影院-新视觉影院  
 
 下载文件
 
@@ -18,6 +18,8 @@ http://www.newadblock.com/    请在软件设置里关闭“启用https拦截�
 Fiddler 抓包工具
 
 AAA http://gghhee.com/  http://www.77jjoo.com/
+
+Github: https://github.com/pospospos2007/albert   http://123.56.164.113:9999/ (电影目录)
 
 Youtube关键字：
 
