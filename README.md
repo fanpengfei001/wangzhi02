@@ -2,6 +2,9 @@
 
 http://q4yy.com/   Http://www.a4yy.com/   http://www.yy6080.org/ YY高清影院-新视觉影院  
 
+https://github.com/Hackl0us/Surge-Rule-Snippets/tree/master/GFW%E5%90%8D%E5%8D%95
+GFW名单
+
 下载文件
 
 http://www.xvideos.com/video24844545/asianxv.com_-_mari_shiraishi#_tabDownload
