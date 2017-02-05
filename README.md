@@ -13,7 +13,7 @@ http://www.newadblock.com/    请在软件设置里关闭“启用https拦截�
 
 Fiddler 抓包工具
 
-AAA http://gghhee.com/  http://www.77jjoo.com/
+AAA http://gghhee.com/  http://www.77jjoo.com/  http://18av.mm-cg.com/18av/21253.html AAAV
 
 Github: https://github.com/pospospos2007/albert   http://123.56.164.113:9999/ (电影目录)
 
@@ -22,6 +22,8 @@ Youtube关键字：
 1.  Fast and Furious 8 Trailer 4K ULTRA HD | Fast 8   
 
 2.WONDER WOMAN Trailer 1 + 2 (Ultra HD 4K - 2017)   
+
+
 
               
               
