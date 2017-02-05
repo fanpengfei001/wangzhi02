@@ -14,9 +14,11 @@ http://www.newadblock.com/    请在软件设置里关闭“启用https拦截�
 Fiddler 抓包工具
 
 AAA http://gghhee.com/  http://www.77jjoo.com/  http://18av.mm-cg.com/18av/21253.html AAAV
-http://18av.mm-cg.com/18av/21961.html ----- http://18av.mm-cg.com/category/22000.html
-
-Github: https://github.com/pospospos2007/albert   http://123.56.164.113:9999/ (电影目录)
+http://18av.mm-cg.com/18av/21961.html ----- http://18av.mm-cg.com/category/22000.html 
+http://18av.mm-cg.com/18av/4278.html
+http://18av.mm-cg.com/18av/4293.html
+http://18av.mm-cg.com/18av/514.html 
+Github: https://github.com/pospospos2007/albert   http://123.56.164.113:9999/ (电影目录)
 
 Youtube关键字：
 
